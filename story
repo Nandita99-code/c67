@@ -1,1 +1,1 @@
-Once upon a time there were two friends.
+Once upon a time there were two friends. They were planning a trip to Manali
